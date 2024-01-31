@@ -1,1 +1,0 @@
-# Fotografia-Bootstrap.github.io
